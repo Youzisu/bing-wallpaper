@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&w=1000)Today: [平原斑马幼崽，埃托沙国家公园，纳米比��� (© Sharon Heald/Nature Picture Library)](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&w=1000)Today: [平原斑马幼崽，埃托沙国家公园，纳米比亚 (© Sharon Heald/Nature Picture Library)](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-05-30 [download 4k](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-05-30 [download 4k](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-05-29 [download 4k](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
